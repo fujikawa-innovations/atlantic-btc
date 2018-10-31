@@ -1,4 +1,6 @@
-<a href="http://atlaticholding.tk"><img  width="300pz" height="100pz" src="https://svgshare.com/i/991.svg"></a>
+<p align="center">
+  <a href="http://atlaticholding.tk"><img width="300pz" height="100pz" src="https://svgshare.com/i/991.svg"></a>
+</p>
 
 Aiming to reach an audience that wants comfort and liquidity in its investments we try to offer the best quality in the offer and security in its operations. Choose a strategy, range of operation, test and just watch your profits. Decentralized and auditable we do not interfere in its result. Modern and intuitive platform your satisfaction, comfort, security and profit is our biggest goal.
 
